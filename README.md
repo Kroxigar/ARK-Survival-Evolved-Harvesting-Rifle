@@ -1,1 +1,0 @@
-# ARK-Survival-Evolved-Harvesting-Rifle
